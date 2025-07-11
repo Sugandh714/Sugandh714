@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sugandh714
-- 👀 I’m interested in meating like minded friends
+- 👀 I’m interested in meeting like minded friends
 - 🌱 I’m currently learning DSA
 - 📫 How to reach me :e- mail:ksugandh714@gmail.com 
 
